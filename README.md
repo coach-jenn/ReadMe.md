@@ -1,6 +1,6 @@
-# Hi 👋 My name is Jenn Best
+## Hi 👋 My name is Jenn Best
 
-## Leadership and coaching professional.🦄 Passionate about helping people. 🫶
+### Leadership and coaching professional.🦄 Passionate about helping people. 🫶
 
 <p>As a highly experienced leadership and coaching professional, I bring value in many ways:<br>
 ✨ International Team Leader<br>
