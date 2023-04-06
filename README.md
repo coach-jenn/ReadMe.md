@@ -27,7 +27,7 @@
 
 <p>I'd love to hear from you! Ask me what I’ve been up to recently or share some ideas of how we might work together on an initiative or project that’s important to you. 😊</p> 
 
-<p>Say 👋 hello@jenn.best or visit: [linktr.ee/jennbest](https://linktr.ee/jennbest)</p>
+<p>Say 👋 hello@jenn.best or visit: <a href="https://linktr.ee/jennbest" target="_blank" rel="noreferrer">linktr.ee/jennbest</a></p>
 
 #### Socials
 
