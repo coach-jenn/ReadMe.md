@@ -3,11 +3,14 @@
 ### Leadership and coaching professional.🦄 Passionate about helping people. 🫶
 
 <p>As a highly experienced leadership and coaching professional, I bring value in many ways:<br>
-✨ International Team Leader<br>
-👩‍💻 Agile & SCRUM Champion<br>
-⚙️ Operations, Project & Product Manager<br>
-🌍 Global Career Development Facilitator<br> 
-🧠 Neurodivergent (Neurotypes: Autism, ADHD, Dyslexia & Dyspraxia)<br> 
+🌍 Certified Career Coach: Global Career Development Facilitator (GCDF)<br>
+🏆 Honored as one of the TOP 50 Global Neurodiversity Evangelists in 2023<br>
+⚙️ Experienced operations manager<br>
+✨ Project, product & people management (including international team leadership)<br>
+🔥 Survived & thrived in four startups to date<br>
+👩‍💻 Agile & SCRUM champion<br>
+👩‍🏫 Educator & training facilitator<br>
+🧠 Lifelong learner & neurodivergent thinker (neurotypes: Autism, ADHD, dyslexia & dyspraxia)
 </p>
 
 #### TECHNICAL SKILLS 
