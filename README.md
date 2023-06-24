@@ -6,7 +6,7 @@
 🌍 Certified Career Coach: Global Career Development Facilitator (GCDF)<br>
 💼 Certified Career Services Provider (CCSP)<br>
 🏆 Honored as one of the TOP 50 Global Neurodiversity Evangelists in 2023<br>
-♾️ Neurodiversity in the Workplace Advanced Practitioner
+♾️ Neurodiversity in the Workplace Advanced Practitioner<br>
 ⚙️ Experienced Operations Manager<br>
 ✨ Project, Product & People management (including international team leadership)<br>
 🔥 Survived & thrived in four startups to date<br>
