@@ -3,8 +3,7 @@
 ### Leadership and coaching professional.🦄 Passionate about helping people. 🫶
 
 <p>As a highly experienced leadership and coaching professional, I bring value in many ways:<br>
-🌍 Certified Career Coach: Global Career Development Facilitator (GCDF)<br>
-💼 Certified Career Services Provider (CCSP)<br>
+💼 Quadruple Certified Career Industry Expert: CCSP, GCDF, CCTC, CPRW<br>
 🏆 Honored as one of the TOP 50 Global Neurodiversity Evangelists in 2023<br>
 ♾️ Neurodiversity in the Workplace Advanced Practitioner<br>
 ⚙️ Experienced Operations Manager<br>
